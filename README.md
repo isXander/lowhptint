@@ -1,2 +1,2 @@
 # WHERE TO DOWNLOAD
-Download the file [here](https://short.isxander.co.uk/lowhptint)
+Download the mod [here](https://short.isxander.dev/lowhptint)
